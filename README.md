@@ -1,2 +1,0 @@
-# mjhhhhhyrf
-🌐 Auto deployed website
